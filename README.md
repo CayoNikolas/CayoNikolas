@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CayoNikolas
-- 👀 I’m interested in Volleyball, Videogames, Computer Network and Holy Bible themes
+- 👀 I’m interested in Music, Volleyball, Videogames, Computer Network and Holy Bible themes
 - 🌱 I’m currently learning Computer Network, Linux OS, Git and Computer Science disciplines
 - 💞️ I’m looking to collaborate on Work Projects, University Projects and University Lessons
 - 📫 How to reach me e-mail, Instagram or Whatsapp
